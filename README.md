@@ -9,5 +9,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about genealogy
 - 📫 How to reach me: spda1013@gmail.com
 - 😄 Pronouns: he/him
-
+- Have a nice day!
 -->
